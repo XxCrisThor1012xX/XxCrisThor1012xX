@@ -1,2 +1,3 @@
 - 👋 Hi, I’m @XxCrisThor1012xX
 - 🌱 I’m currently learning minetest coding
+- Please contact me on cristhianjavier1232@gmail.com
